@@ -1,0 +1,2 @@
+# icons-for-Mac-and-PC
+Created some free downloadable icons for Mac and PC. It can  be used to change your folder or some app icons. It can also be used for graphic designs too.  I use Adobe Illustrator CC and Canva for these projects. Will be available on my website: http://nadineamanda.com or most likely I will link it from my website to my GitHub. I am open for commissions. Please feel free to email me at: hello@nadineamanda.com 
